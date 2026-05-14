@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with custom Scripts for shrink for brainrots, the #1 Script. Includes teleport and unlimited
 
 
 
